@@ -11,5 +11,5 @@
 - 📫 How to reach me: You can find me on LinkedIn at 
      www.linkedin.com/in/biancaweeden
 - 😄 Pronouns: She/Her/Hers
-- ⚡ Fun fact: In my free time, I'm usually busy managing my Sim's lives (and trying to keep them out of trouble!)
+- ⚡ Fun fact: I'm a big Sims fan! I love building houses and creating elaborate Sim stories. 
 
